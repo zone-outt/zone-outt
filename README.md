@@ -1,4 +1,5 @@
-## <img width="150" height="150" alt="tumblr_dd574989431ad7c003d778bdbb73db84_da7a3ac9_2048" src="https://github.com/user-attachments/assets/248721aa-2290-4a7a-8900-8535fc98782f" />  ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
+## <img width="280" height="280" alt="tumblr_48d6537ac836fbea9e925a596a8b6c68_ac7e77a7_1280" src="https://github.com/user-attachments/assets/8ee105e1-58a0-4fd2-9c55-ef71768be2de" />
+
 
 <!--
 **zone-outt/zone-outt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -57,3 +58,6 @@ BEFORE YOU INTERACT!
 
 
 ![af5324d615f14c62ac73cc951767e2ea](https://github.com/user-attachments/assets/97c4e07c-183d-4e1d-af60-d2148fc4fd4c)
+
+
+ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
