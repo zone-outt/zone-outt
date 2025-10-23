@@ -27,7 +27,7 @@ Here are some ideas to get you started:
 ══════ ༺♥༻♛༺♥༻  ══════ 
 
 BEFORE YOU INTERACT!
-- I consume a copious amount of beetles. I also eat the Beatles. Don't ask me about this I will kill you.
+- I consume a copious amount of beetles. Don't ask me about this I will kill you.
 - I have insane hemorrhoids and I mean INSANE. I will attack you to cope.
 - I have every mental illness.
 - You will begin to cough in three days.
