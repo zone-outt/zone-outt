@@ -35,6 +35,7 @@ BEFORE YOU INTERACT!
 - I make myself known by knocking thrice upon your ceiling. Nothing less, nothing more. Thrice on the ceiling, thrice on the door.
 - Jimmy from Mouthwashing physically repulses me.
 - Stop listing your triggers and health issues on github. You're handing someone a loaded gun and expecting them not to shoot.
+- Putting "DNC" on your ponies is stupid. People who copy don't care in the first place. Swiper no swiping logic.
 
 ══════ ༺♥༻♞༺♥༻  ══════ 
 
