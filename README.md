@@ -34,6 +34,7 @@ BEFORE YOU INTERACT!
 - My spine sheds every two weeks.
 - I make myself known by knocking thrice upon your ceiling. Nothing less, nothing more. Thrice on the ceiling, thrice on the door.
 - Jimmy from Mouthwashing physically repulses me.
+- Stop listing your triggers and health issues on github. You're handing someone a loaded gun and expecting them not to shoot.
 
 ══════ ༺♥༻♞༺♥༻  ══════ 
 
